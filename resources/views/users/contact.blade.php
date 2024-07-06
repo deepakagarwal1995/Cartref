@@ -53,7 +53,7 @@
                             any questions regarding our products and sizing recommendations or inquiries about your current
                             order.<br>
                             <br>
-                            Contact our Customer Care team through the contact form below, email us at hello@modimal.com or
+                            Contact our Customer Care team through the contact form below, email us at hello@cartraf.com or
                             live chat with us via our chat widget on the bottom right hand corner of this page.
                             <br><br>
                             We will aim to respond to you within 1-2 business days.
